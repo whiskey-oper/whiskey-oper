@@ -17,6 +17,6 @@
  + ## HTML
  + **Coding** - Like making websites of your choice depending on what you want in it
  ## In other words : ツ
- [!Check out this cool video!](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+ [!Check out this cool video!](https://www.youtube.com/shorts/xKlCLvJ4mnM)
  Trust, it's *very* cool <3
  ## ![KITTY](<download (2).jpg>) ![KITTYY](<download (1).jpg>) ![KITTYYYUH](download.jpg)
